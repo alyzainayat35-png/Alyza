@@ -1,2 +1,3 @@
-# Alyza
-Alyza Inayat is the professional writer, traveling journalist, and editor experience at Netic Limo. Netic Limo offers the black fleet of black from airports to transfer quickly towns, cities of NY,  NJ, and CT.
+# Alyza Inayat 
+Alyza Inayat is a professional writer, traveling journalist, and editor with experience at Netic Limo. Netic Limo offers a black fleet of vehicles from airports to quickly transfer to towns and cities in NY,  NJ, and CT.
+ 
